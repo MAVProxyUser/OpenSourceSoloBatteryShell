@@ -29,3 +29,6 @@ I hope my write-up is easy to understand?! If you have any question, feel free t
 Thanks.
 
 
+![SoloIng Battery Mod](https://pbs.twimg.com/media/CMD9qvzUEAUG6kV.jpg)
+
+![SoloIng Battery Mod](https://pbs.twimg.com/media/CMD9quuUwAAFYK7.jpg)
